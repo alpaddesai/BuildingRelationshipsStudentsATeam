@@ -1,4 +1,4 @@
-# BuildingR elationships Students Teams
+# Building Relationships Students Teams
 
 ![image](BuildingRelationshipsStudentTeamsmostlyAgrade(Ateam).jpg)
 
